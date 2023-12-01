@@ -1,5 +1,5 @@
 - 👋  Hi, my name is @DerekTea
-- 👀  I’m currently a 2nd year life science student at the University of Toronto 
+- 👀  I’m currently a 4th year life science student at the University of Toronto 
 - 🌱  My hobbies include photography, sports, writing/journalism, and computer science + coding (I am only just starting to learn)
 - 📫  Reach me through email at derektea88@gmail.com
 
